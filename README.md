@@ -14,7 +14,7 @@ Sublimare is an artistic lighting installation at the San Diego airport.  This p
 
 Shin'm 2.0, a collaboration between Eunsu Kang, Donald Craig, and Diana Garcia-Snyder, is an inspiring piece of new media art.  The image captured provokes a warm and cozy yet almost electric feeling when viewing it.  Upon first glance, there appears to be a lot of energy due to the overwhelming array of bright lights.  However, after looking further into the image and watching the live video, I became aware that the subject was alone in a dark room dancing.  The addition of the lights overlaid on the image could indicate the thrill that the subject is feeling when she is expressing herself and letting loose "without being watched".  The subject is moving very carefully and is in tune with only her mind and the lights enveloping her, creating a dreamy atmosphere.
 
-[Here's a link to the piece](https://vimeo.com/53390578)
+[Here's a link to the piece](https://vimeo.com/26894617)
 
 
 ### Portals I
@@ -22,6 +22,6 @@ Shin'm 2.0, a collaboration between Eunsu Kang, Donald Craig, and Diana Garcia-S
 ![Portal 2](images/Portal2.jpg?raw=true "Portal 2")
 ![Portal 3](images/Portal3.jpg?raw=true "Portal 3")
 
-Max Almy and Teri Yarbow's Portal Series beautifully combine metal work with nature and algorithmic animations.  When played, each Portal becomes mesmerizing due to the enchanting colors and smooth, circular movements.  The colors used in the natural images remind me of color schemes often seen in Sedona, Arizona.  Sedona is a very magical and almost mystical setting, which also relates to the vibe I feel when I watch the Portals move.  The outward circular motion used in the animation appear to me as a heart and soul flowing and opening up.  It makes me feel very uplifted and inspired.
+Max Almy and Teri Yarbow's Portal Series beautifully combine metal work with nature and algorithmic animations.  When played, each Portal becomes mesmerizing due to the enchanting colors and smooth, circular movements.  The colors used in the natural images remind me of color schemes often seen in Sedona, Arizona.  Sedona is a very magical and almost mystical setting, which also relates to the vibe I feel when I watch the Portals move.  The outward circular motion used in the animation appear to me as a heart and soul flowing and opening up.  Although the series is meant for humans to simply look at, it still makes me feel very uplifted and inspired.
 
 [Here's a link to the piece](http://www.maxalmy-teriyarbrow.com/Max_Almy_and_Teri_Yarbrow/Portals_I.html)
