@@ -24,4 +24,4 @@ Shin'm 2.0, a collaboration between Eunsu Kang, Donald Craig, and Diana Garcia-S
 
 Max Almy and Teri Yarbow's Portal Series beautifully combine metal work with nature and algorithmic animations.  When played, each Portal becomes mesmerizing due to the enchanting colors and smooth, circular movements.  The colors used in the natural images remind me of color schemes often seen in Sedona, Arizona.  Sedona is a very magical and almost mystical setting, which also relates to the vibe I feel when I watch the Portals move.  The outward circular motion used in the animation appear to me as a heart and soul flowing and opening up.  It makes me feel very uplifted and inspired.
 
-[Here's a link to the piece](http://www.maxalmy-teriyarbrow.com/Max_Almy_and_Teri_Yarbrow/Portals_I.html
+[Here's a link to the piece](http://www.maxalmy-teriyarbrow.com/Max_Almy_and_Teri_Yarbrow/Portals_I.html)
