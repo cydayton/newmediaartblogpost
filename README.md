@@ -11,6 +11,7 @@ Sublimare is an artistic lighting installation at the San Diego airport.  This p
 
 ### Shin'm 2.0
 ![Shin'm 2.0](images/shinm21.jpg?raw=true "Shin'm 2.0")
+![Shin'm 2.0](images/shinm23.jpg?raw=true "Shin'm 2.0")
 
 Shin'm 2.0, a collaboration between Eunsu Kang, Donald Craig, and Diana Garcia-Snyder, is an inspiring piece of new media art.  The image captured provokes a warm and cozy yet almost electric feeling when viewing it.  Upon first glance, there appears to be a lot of energy due to the overwhelming array of bright lights.  However, after looking further into the image and watching the live video, I became aware that the subject was alone in a dark room dancing.  The addition of the lights overlaid on the image could indicate the thrill that the subject is feeling when she is expressing herself and letting loose "without being watched".  The subject is moving very carefully and is in tune with only her mind and the lights enveloping her, creating a dreamy atmosphere.
 
